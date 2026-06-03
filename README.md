@@ -1,2 +1,0 @@
-# ASKlawyerlist
-List of Lawyers
